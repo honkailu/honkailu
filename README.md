@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @honkailu
-- 👀 I’m interested in video games
+- 👋 Hi, I’m lu
+- 👀 I’m interested in books
 - 🌱 I’m currently learning school
-- 💞️ I’m looking to collaborate on Genshin
-- 📫 How to reach me TikTok: @honkaiwithlu
+- 💞️ I’m looking to collaborate on TikTok, Instagram, Youtube, RedNote
+- 📫 How to reach me TikTok: @bookswithlucine
 - 😄 Pronouns: ur/mom (anything)
 - ⚡ Fun fact: as if.
 
